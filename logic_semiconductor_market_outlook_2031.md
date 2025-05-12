@@ -3,7 +3,7 @@
 
 ## Market Overview
 
-The global logic semiconductor market size was valued at **US$ 186.9 Bn in 2021** and is projected to reach **US$ 491.1 Bn by 2031**, expanding at a **CAGR of 10.4%** from 2022 to 2031.
+The global [logic semiconductor market](https://www.transparencymarketresearch.com/logic-semiconductor-market.html) size was valued at **US$ 186.9 Bn in 2021** and is projected to reach **US$ 491.1 Bn by 2031**, expanding at a **CAGR of 10.4%** from 2022 to 2031.
 
 ## Analysts’ Viewpoint
 
